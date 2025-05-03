@@ -1,5 +1,5 @@
 # ABOUT ME
-Full Name : Rendi Dirgantara 
+Full Name : Rendi Dirgantara.  
 birth date : 02/07/1999
 
 # quality :
